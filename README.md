@@ -1,0 +1,1 @@
+# csec-sridha-college-comp-mag
